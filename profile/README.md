@@ -1,5 +1,9 @@
 Are you looking for a way to make your letters and text more creative? A **letter types generator** is the perfect tool to help you create stylish and unique letter designs for your projects. Whether you're working on a website, social media post, or graphic design, changing the style of your letters can make a huge difference.  
 
+[![letter types generator](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476-rw/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
+
+---
+
 ### Links to Our Tool:  
 ➤ ►🌍📺📱👉 [Letter Types Generator](https://www.cooltextmaker.com/)  
 ➤ ►🌍📺📱👉 [Creative Letter Types Generator](https://www.cooltextmaker.com/)  
@@ -8,6 +12,8 @@ Are you looking for a way to make your letters and text more creative? A **lette
 ➤ ►🌍📺📱👉 [Unique Letter Styles Generator](https://www.cooltextmaker.com/)  
 ➤ ►🌍📺📱👉 [Stylish Letter Types Generator](https://www.cooltextmaker.com/)  
 ➤ ►🌍📺📱👉 [Text and Letter Generator](https://www.cooltextmaker.com/)
+
+---
 
 ## What is a Letter Types Generator?
 
